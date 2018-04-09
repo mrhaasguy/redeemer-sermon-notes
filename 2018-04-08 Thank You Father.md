@@ -46,7 +46,7 @@ It is a kingdom **w/o fear of consequences**. W/o fear of what others will think
 
 It is a kingdom of **love**. We love the King and his subjects.
 
-There is **no more pretending**, no masks, no distance. Where we pretend not to feel what we really feel. We don't have to pretend that we sin, or are tempted.
+There is **no more pretending**, no masks, no distance. Where we pretend not to feel what we really feel. We don't have to pretend that we don't sin, or aren't tempted.
 
 We **see the truth**, we are not blinded. Because there is light, there is the absence of fear, we can see where we are going. Light keeps us from fear.
 
