@@ -52,7 +52,7 @@ Why then do we look for satisfaction in all the wrong places? We have an enemy, 
 
     Often we find our satisfaction in not just the bad things, but the good things -- religious devotion, love for others.
 
-**Our call is not to find satisfaction in Jesus alone**, not anything we do whether good or bad.
+**Our call is to find satisfaction in Jesus alone**, not anything we do whether good or bad.
 
 If we find our satisfaction in other things, it lead to moral failure and destruction.
 
